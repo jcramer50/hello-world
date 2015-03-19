@@ -9,5 +9,5 @@ I'm pretty much awesome. Some of the best things about me include the following:
 
 *****
 
-My motto: *The pursuit of mediocrity is not a one-time decision. It's a life-long, dedicated pursuit of one's own personal not-quite ideals.*
+My motto: *The path to mediocrity is not a one-time decision. It's a life-long, dedicated pursuit of one's own personal not-quite ideals.*
 
